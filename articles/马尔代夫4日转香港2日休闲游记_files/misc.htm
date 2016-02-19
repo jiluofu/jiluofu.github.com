@@ -1,0 +1,10 @@
+if($('secqaa_qSPRRrgd')) {
+	var sectpl = seccheck_tpl['qSPRRrgd'] != '' ? seccheck_tpl['qSPRRrgd'].replace(/<hash>/g, 'codeqSPRRrgd') : '';
+	var sectplcode = sectpl != '' ? sectpl.split('<sec>') : Array('<br />',': ','<br />','');
+	var string = '<input name="secqaahash" type="hidden" value="qSPRRrgd" />' + sectplcode[0] + '验证问答' + sectplcode[1] + '<input name="secanswer" id="secqaaverify_qSPRRrgd" type="text" autocomplete="off" style="width:100px" class="txt px vm" onblur="checksec(\'qaa\', \'qSPRRrgd\')" />' +
+		' <a href="javascript:;" onclick="updatesecqaa(\'qSPRRrgd\');doane(event);" class="xi2">换一个</a>' +
+		'<span id="checksecqaaverify_qSPRRrgd"><img src="' + STATICURL + 'image/common/none.gif" width="16" height="16" class="vm" /></span>' +
+		sectplcode[2] + '<b style="color:blue;">请输入下面</b> <b style="color:red;">第16-22位</b> <b style="color:blue;">的字符，末尾加上</b><b style="color:red;">CHH</b><br><b style="color:red;">d913b 3b075 191a7 33934 4bee2 9266b </b>' + sectplcode[3];
+	evalscript(string);
+	$('secqaa_qSPRRrgd').innerHTML = string;
+}
