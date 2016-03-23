@@ -3,7 +3,7 @@ body {
     margin: 0;
     padding: 0;
     text-align: left;
-    font-size: 16px;
+    font-size: 15px;
     font-family: "Microsoft YaHei";
 }
 
@@ -12,30 +12,12 @@ form, p, ul, li, div, dl, dt, dd, input, a, span {
     margin: 0;
     padding: 0;
     list-style: none;
-    font-size: 16px;
 }
 
 img {
     
     border: 0;
     vertical-align: text-bottom;
-}
-
-input {
-
-    vertical-align: text-bottom;
-}
-
-select {
-
-    vertical-align: text-bottom;
-    font-size: 12px;
-}
-
-td, th, div {
-
-    font-size: 12px;
-    line-height: 18px;
 }
 
 a {
@@ -65,9 +47,11 @@ p {
 p.img {
 
     text-align: center;
+
 }
 
 #qrcode {
 
     text-align: center;
 }
+
