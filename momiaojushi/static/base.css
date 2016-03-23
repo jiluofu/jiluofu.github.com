@@ -1,0 +1,10 @@
+body{margin:0;padding:0;text-align:center;font-size:16px;font-family:"Microsoft YaHei";}
+form,p,ul,li,div,dl,dt,dd,input,a,span{margin:0;padding:0;list-style:none;}
+img{border:0;vertical-align:text-bottom;}
+input{vertical-align:text-bottom;}
+select{vertical-align:text-bottom;font-size:12px;}
+td,th,div{font-size:12px;line-height:18px;}
+a {text-decoration:none;}
+a:link{color:#077AC7;}
+a:visited{color:#077AC7;}
+p {font-size: 20px;}
