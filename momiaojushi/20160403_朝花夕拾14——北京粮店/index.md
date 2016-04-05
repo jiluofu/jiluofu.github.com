@@ -2,7 +2,7 @@
 
 家楼下就有一个粮店，内部的结构和下图差不多，只是宽敞很多，大概有4个斗可以同时装米装面。
 
-![](http://upload-images.jianshu.io/upload_images/51001-266cc6566f680bb4.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![](https://jiluofu.github.com/momiaojushi/20160403_朝花夕拾14——北京粮店/img/51001-266cc6566f680bb4.jpg)
 
 大概是上小学前后，父母开始带着我去买粮食，于是开始对粮票和粮店模模糊糊有了认识。
 
