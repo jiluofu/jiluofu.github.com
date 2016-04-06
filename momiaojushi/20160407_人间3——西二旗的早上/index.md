@@ -75,12 +75,13 @@
 
 ***
 
-***新篇预告： ***
+***新篇预告：***
 
 ***
 
 
 **个人微信公众号，长按二维码加关注，或搜索：momiaojushi**
+
 **喜欢作者写写哪些话题，可以公众号留言**
 
-![](https://jiluofu.github.com/momiaojushi/static/qrcode.jpg)
+![](https://github.com/jiluofu/jiluofu.github.com/raw/master/momiaojushi/static/qrcode.jpg)
