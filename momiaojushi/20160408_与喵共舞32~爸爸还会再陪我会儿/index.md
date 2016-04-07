@@ -4,19 +4,19 @@
 
 在游乐场玩儿累的时候，是吃饭最认真的时候。
 
-![](http://upload-images.jianshu.io/upload_images/51001-62a0404c950b69f8.jpg)
+![](img/51001-62a0404c950b69f8.jpg)
 
 吃完了也会自己主动去添菜。
 
-![](http://upload-images.jianshu.io/upload_images/51001-076ba5348dbf6f1f.jpg)
+![](img/51001-076ba5348dbf6f1f.jpg)
 
 吃到高兴处，完全不顾自己的形象。
 
-![](http://upload-images.jianshu.io/upload_images/51001-31d35dac63d112a1.jpg)
+![](img/51001-31d35dac63d112a1.jpg)
 
 如果碰上了爱吃的汉堡，更是能吃下一整个。
 
-![](http://upload-images.jianshu.io/upload_images/51001-13cad792cf34bce6.jpg)
+![](img/51001-13cad792cf34bce6.jpg)
 
 随着胃口大开，喵的身高也迅速突破了1米大关。
 
@@ -66,7 +66,7 @@
 
 希望这样的合影能一直这么拍下去，总是这样看着她的笑容。
 
-![](http://upload-images.jianshu.io/upload_images/51001-91a8d2c862dfd342.jpg)
+![](img/51001-91a8d2c862dfd342.jpg)
 
 
 ***
