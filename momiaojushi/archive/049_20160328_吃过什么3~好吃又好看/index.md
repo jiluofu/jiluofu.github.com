@@ -1,6 +1,6 @@
 **2016.03.28**
 
-![](http://upload-images.jianshu.io/upload_images/51001-00b2190fdab683da.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)**2016.03.28**
+![](http://upload-images.jianshu.io/upload_images/51001-00b2190fdab683da.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
 楼下超市外的商铺里，有一家开了很久的馅饼铺，卖馅饼、烙饼。
 

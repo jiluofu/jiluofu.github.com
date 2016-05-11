@@ -37,7 +37,7 @@
 
 最难的就是第三步，要冲过这个塑胶操场。
 
-![](img/51001-ba0213e870fffa92.jpg)
+![](http://upload-images.jianshu.io/upload_images/51001-ba0213e870fffa92.jpg)
 
 正常情况下，这就是一个万马奔腾，考验爆发力的时刻。
 
@@ -57,7 +57,7 @@
 
 喵吃饭慢，看到我吃她爱吃的菜，总会冲我喊：“给我留点儿”。
 
-![](img/51001-b1fbecf2b4fa29d6.jpg)
+![](http://upload-images.jianshu.io/upload_images/51001-b1fbecf2b4fa29d6.jpg)
 
 这时我都会跟她讲：
 
