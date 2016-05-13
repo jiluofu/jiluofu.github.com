@@ -14,11 +14,11 @@
 
 楼下物美超市卖牛肉的摊位上，常年就摆几片干了的牛肉。直到去年这个摊位变成月盛斋了，终于有了起色。
 
-![](img/51001-2a085ad47997216c.jpg)
+![](http://upload-images.jianshu.io/upload_images/51001-2a085ad47997216c.jpg)
 
 冷藏柜里干干净净，金钱腱一条条包好，都是剔除掉肥肉和筋膜的。牛腩、上脑、羊腿、肉片、肉馅都井然有序。
 
-![](img/51001-bb82c0c17dccd59b.jpg)
+![](http://upload-images.jianshu.io/upload_images/51001-bb82c0c17dccd59b.jpg)
 
 不过价格很贵，比菜市场每斤要贵10元。但考虑到分量足和剔除了多余的肥肉，也算是不错了。
 
@@ -36,4 +36,8 @@
 
 ***
 
-![](https://jiluofu.github.com/momiaojushi/static/qrcode.jpg)
+**个人微信公众号，长按二维码加关注，或搜索：摹喵居士**
+
+**喜欢作者写写哪些话题，可以公众号留言**
+
+![](https://github.com/jiluofu/jiluofu.github.com/raw/master/momiaojushi/static/qrcode.jpg)

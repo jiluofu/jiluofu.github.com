@@ -1,4 +1,6 @@
-![](http://upload-images.jianshu.io/upload_images/51001-425811a70558b1be.jpg)
+**2016.04.29**
+
+![](http://upload-images.jianshu.io/upload_images/51001-f91004e85ec57544.jpg)
 
 很多很多年前，好像还在上小学时。
 
@@ -21,6 +23,10 @@
 父亲吃饭的速度（[朝花夕拾2——父亲那难以望其项背的好胃口](http://jiluofu.lofter.com/post/3f9f5_8ba634)），我是深深领教过的，于是赶紧拿起牙签开吃。
 
 第一次吃灌肠的感觉真是奇妙啊，脆、油、蒜香，真是欲罢不能啊。虽然之后吃过无数次灌肠，但是都没有这次感觉好。
+
+比如北平楼里的灌肠是用小竹篓盛的，总觉得有点过于精致，而且片切得有些厚。
+
+![](http://upload-images.jianshu.io/upload_images/51001-c18bf7211316eaef.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
 大概5秒钟后，我们俩人就吃完了一盘，正想再要一盘的时候，父亲说：
 
