@@ -1,3 +1,5 @@
+**2016.05.16**
+
 ![](http://upload-images.jianshu.io/upload_images/51001-7ca80b9705f532a7.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
 **拍摄时间：2016.01.30**
@@ -34,3 +36,16 @@
 * 还是会不耐烦。
 
 与人相处是学问，我也还在学习。
+
+***
+
+***下期预告：放学后，新华书店***
+
+***
+
+
+**个人微信公众号，长按二维码加关注，或搜索：摹喵居士**
+
+**喜欢作者写写哪些话题，可以公众号留言**
+
+![](https://github.com/jiluofu/jiluofu.github.com/raw/master/momiaojushi/static/qrcode.jpg)
