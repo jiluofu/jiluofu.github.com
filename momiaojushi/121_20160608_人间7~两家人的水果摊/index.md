@@ -4,7 +4,11 @@
 
 最早是一对中年夫妻经营，每天开来一辆小面包，装满了最新鲜的水果，现在这个季节，会有8个不同品种的樱桃同时在卖。
 
+![](http://upload-images.jianshu.io/upload_images/51001-d3bb16bc6f05825d.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
 西瓜也是附近水果摊里最甜的，而且可以切成1/4卖，同时橙子、梨、桔子、火龙果等等水果也是一应俱全。
+
+![](http://upload-images.jianshu.io/upload_images/51001-ae40d5311768aba5.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
 店里面很早就放置了微信和支付宝支付的二维码，来买水果也可以不用带钱。
 
@@ -17,6 +21,8 @@
 转过了一个春节，水果摊这条街整顿，所以店铺重新装修。
 
 开张后，发现水果摊变成了水果店，之前2倍的面积，2家人都留下继续经营，2/3的面积卖水果，剩下1/3的面积卖干果冷饮。
+
+![](http://upload-images.jianshu.io/upload_images/51001-498ef6ab9cf8fea7.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
 两家人轮流经营，大概半年多会互换一下业务。
 
