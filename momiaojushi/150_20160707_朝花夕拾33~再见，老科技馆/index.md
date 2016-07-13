@@ -1,38 +1,51 @@
-**2016.07.05**
+**2016.07.07**
 
-本篇简单介绍一下现在的摄影装备。
+最近早上送喵去幼儿园，突然发现三环上的老科技馆开始施工了，不知道是要做什么，感觉是要开始拆除了。
 
-现在用的相机是松下GX7，镜头是15/1.7 + 35-100/2.8。
+巨大的球幕影院的外壳已经一片片剥落了。
+![](http://upload-images.jianshu.io/upload_images/51001-07078d5262ed2b49.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-经过之前宾得家的折腾好，彻底地整理了一下思路，那就是——保证画质的基础上尽量要轻。于是进入了松下的M43阵营。
+新馆大楼也被脚手架围起来了。
+![](http://upload-images.jianshu.io/upload_images/51001-e17011f58d80e012.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-M43阵营虽然被唱衰很多年，但是松下仍然每年扎扎实实地发布机身和镜头，镜头焦段完整，价格适中。虽然面对索尼的单电超轻全幅机身的竞争，但是M43镜头群的完整和轻量化都是索尼现在无法企及的。
+记得当年这个波浪形的大楼建起来时，造型还是很新颖的。
+![](http://upload-images.jianshu.io/upload_images/51001-1dcf530933293977.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-松下GX7，发布有几年了，屏幕向上翻转，触摸很灵敏，可惜不能自拍，机身只有360g。同时有电子静音快门，机械快门也有1/8000。
-![](http://upload-images.jianshu.io/upload_images/51001-458424d7397b6b0e.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+透过球幕影院的框架，看着里面层层叠叠。
+![](http://upload-images.jianshu.io/upload_images/51001-c75ccdec36adc33e.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-松下徕卡镜头15/1.7，非常轻巧，只有115g，平时就做挂机头，室内一般光线下，快门1/160都能应付。
-![](http://upload-images.jianshu.io/upload_images/51001-697439a69b46fda3.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+内部的脚手架错综复杂，交错中越看越美。
+![](http://upload-images.jianshu.io/upload_images/51001-7194f8021d3b4b7b.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-15/1.7 家里弱光下拍摄喵做手链。
-![](http://upload-images.jianshu.io/upload_images/51001-5971fc75a1a9e2b6.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+破损的蒙皮，零落在骨架上。
+![](http://upload-images.jianshu.io/upload_images/51001-c4cb069ffa7165c7.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-15/1.7 傍晚拍摄奥林匹克公园。
-![](http://upload-images.jianshu.io/upload_images/51001-3bf45bacb0a01b97.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+一个巨大的管道从上到下贯穿整个影院。
+![](http://upload-images.jianshu.io/upload_images/51001-0c2caa7acda02649.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-松下徕卡镜头35-100/2.8，只有360g，相比之下非常轻，而且全程内变焦，不会伸出很长，通常室外远距离拍喵时，经常得到佳作。
-![](http://upload-images.jianshu.io/upload_images/51001-4bb6f94bf2bf88b9.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+从来没有想过这个大球里面会是个什么样子。
+![](http://upload-images.jianshu.io/upload_images/51001-fdf16179d4736597.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-35-100/2.8 幼儿园公开课拍摄操场奔跑。
-![](http://upload-images.jianshu.io/upload_images/51001-a7bbd42caf959959.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+最后再看它一眼。
+![](http://upload-images.jianshu.io/upload_images/51001-b086c94276b79e67.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-同时携带这些装备主要靠一条摄影腰带和镜头包，平时相机装一个镜头，挂在腰带上，随手就可以拿下来拍，另一个镜头放在镜头带，也挂在腰带上。
+再见了，老科技馆。
+![](http://upload-images.jianshu.io/upload_images/51001-80e9d536979f7b07.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-这么多年的经验，摄影设备一定要轻，同时可以快速取下和回收。
+回想最早去科技馆，初中那时只有一幢板楼和球幕影院，板楼里必玩儿的是静电头发飘、肥皂泡和闪电发生器。
+
+球幕影院里，常年在放的是《大峡谷》，第一次看时，镜头冲下峡谷时，我激动地险些从椅子上滚下去。
+
+高中时，波浪形的新楼落成，学校组织去参观，里面最有名的区域其实是个网吧，大家在那里体验什么叫“上网冲浪”。
+
+2008奥运后，新科技馆落成，老科技馆也就停用了，今天终于要拆除改建了。
+
+最后，谨以此文告别老科技馆，以后只能翻出这些照片，告诉孩子们，当年北京三环边上有一个大球，那是老科技馆。
+
 
 ***
 
-***下期预告：***
+***下期预告：南戴河第1天***
 
 ***
 

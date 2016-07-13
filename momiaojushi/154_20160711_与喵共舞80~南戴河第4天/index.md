@@ -1,38 +1,126 @@
-**2016.07.05**
+**2016.07.11**
 
-本篇简单介绍一下现在的摄影装备。
+南戴河第4天开始啦，早饭后，小家伙们开始玩儿水枪。
+![](http://upload-images.jianshu.io/upload_images/51001-46034cbcf5495e83.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-现在用的相机是松下GX7，镜头是15/1.7 + 35-100/2.8。
+早早来到海滩。
+![](http://upload-images.jianshu.io/upload_images/51001-a937c6806255134c.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-经过之前宾得家的折腾好，彻底地整理了一下思路，那就是——保证画质的基础上尽量要轻。于是进入了松下的M43阵营。
+婷婷姐姐下水。
+![](http://upload-images.jianshu.io/upload_images/51001-41a665b27b2b29f2.jpg?
+imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-M43阵营虽然被唱衰很多年，但是松下仍然每年扎扎实实地发布机身和镜头，镜头焦段完整，价格适中。虽然面对索尼的单电超轻全幅机身的竞争，但是M43镜头群的完整和轻量化都是索尼现在无法企及的。
+喵还是在沙滩上跑来跑去。
+![](http://upload-images.jianshu.io/upload_images/51001-3c683d30c5093bfc.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-松下GX7，发布有几年了，屏幕向上翻转，触摸很灵敏，可惜不能自拍，机身只有360g。同时有电子静音快门，机械快门也有1/8000。
-![](http://upload-images.jianshu.io/upload_images/51001-458424d7397b6b0e.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+悦悦也下水了。
+![](http://upload-images.jianshu.io/upload_images/51001-d156a2617fbcab76.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-松下徕卡镜头15/1.7，非常轻巧，只有115g，平时就做挂机头，室内一般光线下，快门1/160都能应付。
-![](http://upload-images.jianshu.io/upload_images/51001-697439a69b46fda3.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+老同志们在岸上。
+![](http://upload-images.jianshu.io/upload_images/51001-cd8d39ca690038fa.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-15/1.7 家里弱光下拍摄喵做手链。
-![](http://upload-images.jianshu.io/upload_images/51001-5971fc75a1a9e2b6.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+婷婷母女一起游泳。
+![](http://upload-images.jianshu.io/upload_images/51001-c6414b08874dc89c.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-15/1.7 傍晚拍摄奥林匹克公园。
-![](http://upload-images.jianshu.io/upload_images/51001-3bf45bacb0a01b97.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+兜妹自己游泳。
+![](http://upload-images.jianshu.io/upload_images/51001-41efd92cd671e0b7.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-松下徕卡镜头35-100/2.8，只有360g，相比之下非常轻，而且全程内变焦，不会伸出很长，通常室外远距离拍喵时，经常得到佳作。
-![](http://upload-images.jianshu.io/upload_images/51001-4bb6f94bf2bf88b9.png?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+喵也开始往深处走。
+![](http://upload-images.jianshu.io/upload_images/51001-471cbeb102d8b922.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-35-100/2.8 幼儿园公开课拍摄操场奔跑。
-![](http://upload-images.jianshu.io/upload_images/51001-a7bbd42caf959959.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+![](http://upload-images.jianshu.io/upload_images/51001-10b200356651b773.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-同时携带这些装备主要靠一条摄影腰带和镜头包，平时相机装一个镜头，挂在腰带上，随手就可以拿下来拍，另一个镜头放在镜头带，也挂在腰带上。
+![](http://upload-images.jianshu.io/upload_images/51001-0ddd7ce8182c1bdb.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-这么多年的经验，摄影设备一定要轻，同时可以快速取下和回收。
+![](http://upload-images.jianshu.io/upload_images/51001-463cd1b0f24b9252.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+婷婷母女一起。
+![](http://upload-images.jianshu.io/upload_images/51001-2dc8ab992a8a2567.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+喵妈蛙泳英姿飒爽。
+![](http://upload-images.jianshu.io/upload_images/51001-8e7042df4365e6e7.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+喵跟我们打招呼。
+![](http://upload-images.jianshu.io/upload_images/51001-b9f3131d25a25e88.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+兜妹被浪拍了。
+![](http://upload-images.jianshu.io/upload_images/51001-79c501a137bf5539.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+悦悦和喵一起玩儿水。
+![](http://upload-images.jianshu.io/upload_images/51001-d0ec3b4f7019e5cd.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+大浪一来，转身就跑。
+![](http://upload-images.jianshu.io/upload_images/51001-6a042fc03b17e4e1.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+喵和兜妹一起等大浪。
+![](http://upload-images.jianshu.io/upload_images/51001-c72cfc4454adaf90.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+大浪来啦。
+![](http://upload-images.jianshu.io/upload_images/51001-1d84f407a5ae3a53.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+喵妈长腿。
+![](http://upload-images.jianshu.io/upload_images/51001-fe0e11ea96a4d45a.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+![](http://upload-images.jianshu.io/upload_images/51001-53fa5f928e5cce5b.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+姥姥姥爷合影。
+![](http://upload-images.jianshu.io/upload_images/51001-8ec43b65bb97bc9e.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+和妈妈一起在水里腻乎。
+![](http://upload-images.jianshu.io/upload_images/51001-3d6450ec148fcf7d.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+爷爷和小家伙们在沙滩玩儿。
+![](http://upload-images.jianshu.io/upload_images/51001-83e1a9812379feb8.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+喵还是玩沙子。
+![](http://upload-images.jianshu.io/upload_images/51001-c9b17a9f13d8b919.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+男同志们和孩子们合影。
+![](http://upload-images.jianshu.io/upload_images/51001-3a5eab362dbaea73.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+悦悦冲浪。
+![](http://upload-images.jianshu.io/upload_images/51001-c76bb5da581ba703.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+兜兜冲浪。
+![](http://upload-images.jianshu.io/upload_images/51001-28d5bddb2352112c.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+兜兜拖着板，非常勇敢。
+![](http://upload-images.jianshu.io/upload_images/51001-af8f106f799e605b.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+兜兜在海里游泳。
+![](http://upload-images.jianshu.io/upload_images/51001-38033aa5f257f622.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+大浪拍来。
+![](http://upload-images.jianshu.io/upload_images/51001-1ea266bdd14ced24.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+姐弟三人合影。
+![](http://upload-images.jianshu.io/upload_images/51001-aedad42041a14fbc.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+一起游泳。
+![](http://upload-images.jianshu.io/upload_images/51001-2996c86c4497e199.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+游泳的同志们合影。
+![](http://upload-images.jianshu.io/upload_images/51001-98b6f380cf4fa3d3.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+悦悦和姥爷。
+![](http://upload-images.jianshu.io/upload_images/51001-4d4e60b61d4d6778.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+海上漂。
+![](http://upload-images.jianshu.io/upload_images/51001-4efa7c62bda63c59.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+喵和爷爷。
+![](http://upload-images.jianshu.io/upload_images/51001-228b144ecaba5317.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+一起冲浪。
+![](http://upload-images.jianshu.io/upload_images/51001-6e2eca110d901a99.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+
+南戴河第4天结束啦，明天我们也要回家了，喵和爷爷奶奶再玩儿几天。
+
+
 
 ***
 
-***下期预告：***
+***下期预告：南戴河第5天回家***
 
 ***
 
