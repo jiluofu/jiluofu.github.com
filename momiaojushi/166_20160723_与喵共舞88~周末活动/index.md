@@ -1,4 +1,4 @@
-**2016.07.18**
+**2016.07.13**
 
 ![](http://upload-images.jianshu.io/upload_images/51001-e9e709c8cfc54186.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
@@ -27,7 +27,7 @@
 
 ***
 
-***下期预告：连看两年合唱音乐会***
+***下期预告：***
 
 ***
 
