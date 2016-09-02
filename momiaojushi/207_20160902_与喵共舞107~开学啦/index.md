@@ -1,32 +1,39 @@
-**2016.08.26**
+**2016.09.02**
 
-随着暑假接近尾声，喵也正式准备从小班升中班啦，家长们的微信群名称，也从小班改成中班了。
+又到新学期开学啦，一早出门，路上的车明显多起来了。
 
-假期里在奶奶家玩儿了很久，本周开始恢复正常的幼儿园作息了。
+到了幼儿园路边，旁边的小学生排着大队鱼贯而出，排成两队，占据了半条道路。
+![](http://upload-images.jianshu.io/upload_images/51001-0c7ffe8453c6198e.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-一大早自己起床，喝完牛奶，戴上自己的小皇冠，拿上考拉玩具，坐车出门。
+壮观的队伍，绵延很远。老师们在边上维持秩序，保护同学们不要被汽车蹭了。
+![](http://upload-images.jianshu.io/upload_images/51001-21bc500d5ebb7a7b.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-到了幼儿园附近下车，要高高，走了几步主动要求下来。
-![](http://upload-images.jianshu.io/upload_images/51001-1fb1075dd97fb708.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+听到了很多当年常听到的训话。
+>旁边那个班，一个说话的都没有。就咱们班，没完没了的有人说话。
 
-进幼儿园大门，给看门爷爷、园长老师和卫生老师问好，然后直奔秋千去排队。
-![](http://upload-images.jianshu.io/upload_images/51001-4fd00ffdc4be9c2a.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+老师的口里，永远是旁边那个班最优秀。
 
-由于来得早，玩儿过秋千又去骑车，主动要求骑最大的车。等到了一个好朋友，两人一起骑车，直到看门爷爷吹哨，两人去还车。
-![](http://upload-images.jianshu.io/upload_images/51001-bca9576aac558c55.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+来到幼儿园门口，园长、卫生老师早已等候，孩子们排着队接受卫生老师检查。旁边的老师特意穿上了卡通服，欢迎孩子们开学。
+![](http://upload-images.jianshu.io/upload_images/51001-db031bc7e8234f72.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-两个好朋友你追我赶地跑进了新教室，把玩具放到自己柜子里。新教室和老教室不同，洗手间在外面。
+卫生老师检查嗓子。
+![](http://upload-images.jianshu.io/upload_images/51001-993c681dec9f5a8c.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-喵先去洗手，小篮子里拿手巾擦手，之后放进自己的小格子里。
+卫生老师检查小手。
+![](http://upload-images.jianshu.io/upload_images/51001-b336dcbd0c0731a2.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-洗过手，和我们再见，走进教室吃早饭。
-![](http://upload-images.jianshu.io/upload_images/51001-1a7577e582167fa6.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
+喵一进门就开始玩儿秋千。
+![](http://upload-images.jianshu.io/upload_images/51001-d51f3c287cfe92b3.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-去年时，进教室有时还会磨磨唧唧，一直回头找我们，挥手再见。
+进教室前，我们看了一眼两年前喵刚入园时的教室。那个教室现在迎来了新一批孩子，窗外趴满了焦急的家长，屋里是哭作一团的孩子们。
+![](http://upload-images.jianshu.io/upload_images/51001-2fb74ca8d67599e3.jpg?imageMogr2/auto-orient/strip%7CimageView2/2/w/1240)
 
-今天，已经对自己的幼儿园生活游刃有余，自信地坐在位子和同学交谈，开始吃饭。
+接着就是老师走出教室，劝围在窗外的家长回去，否则孩子们很难平静下来。
 
-看着喵的巨大进步，真为她高兴，祝新学期开学一切顺利。
+我们问喵，还记不记得两年前在那个教室上小托班。
+
+喵温柔地笑了笑，一溜烟地进了中班教学楼。
+
 
 ***
 
